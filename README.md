@@ -1,10 +1,10 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-                              *keith* / **nico** / _~~mashiro~~_
+                             *keith* / **nico** / _~~mashiro~~_
 
                       ![kiss-solangelo](https://github.com/user-attachments/assets/9ce1b3cf-3b89-4cd0-85c3-bb0c63e8d618)
 
-                           [about me](https://keithaustin.straw.page/) / [pony town](https://1nicodiangelo.straw.page/) / [twitter](https://x.com/keithaustinn)
+                            [about me](https://keithaustin.straw.page/) / [pony town](https://1nicodiangelo.straw.page/) / [twitter](https://x.com/keithaustinn)
 
                    ![nico-di-angelo-vanish](https://github.com/user-attachments/assets/b5992eed-b801-4741-ab82-315f9965eda5)
 
@@ -14,6 +14,6 @@
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-cool idiots: JERMY!!!!!! MY WIFE <<<, spore, dxisy, hels, sisi, collin, rinu/achillcide, eli, pinky, ray, and MOOORRREEE!!!!! <33
+cool idiots: JERMY!!!!!! MY WIFE <<<, spore, dxisy, hels, sisi, collin, rinu/achillcide, eli, pinky, ray, and MOOORRREEE!!!!! <33 I luv u guys!!
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
