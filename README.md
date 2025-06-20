@@ -1,16 +1,19 @@
-## Hi there 👋
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-<!--
-**TheSonOfHades/TheSonOfHades** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                              *keith* / **nico** / _~~mashiro~~_
 
-Here are some ideas to get you started:
+                      ![kiss-solangelo](https://github.com/user-attachments/assets/9ce1b3cf-3b89-4cd0-85c3-bb0c63e8d618)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                           [about me](https://keithaustin.straw.page/) / [pony town](https://1nicodiangelo.straw.page/) / [twitter](https://x.com/keithaustinn)
+
+                   ![nico-di-angelo-vanish](https://github.com/user-attachments/assets/b5992eed-b801-4741-ab82-315f9965eda5)
+
+                                   ♰
+
+             ![hoo-herosof-olympus](https://github.com/user-attachments/assets/0b29016d-9f7e-4ab8-8745-955458c55ad0)
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+cool idiots: JERMY!!!!!! MY WIFE <<<, spore, dxisy, hels, sisi, collin, rinu/achillcide, eli, pinky, ray, and MOOORRREEE!!!!! <33
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
