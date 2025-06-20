@@ -8,7 +8,7 @@
 
                    ![nico-di-angelo-vanish](https://github.com/user-attachments/assets/b5992eed-b801-4741-ab82-315f9965eda5)
 
-                                  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Kalam&size=15&pause=1000&color=3FB4FF&width=435&lines=.+.+%E2%99%B0+.+.)](https://git.io/typing-svg)
+                                 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Kalam&size=15&pause=1000&color=3FB4FF&width=435&lines=.+.+%E2%99%B0+.+.)](https://git.io/typing-svg)
 
                     [![Typing SVG](https://readme-typing-svg.demolab.com?font=Kalam&size=15&pause=1000&color=3FB4FF&width=435&lines=%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98%E2%AB%98)](https://git.io/typing-svg)
 
