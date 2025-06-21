@@ -55,4 +55,4 @@
 ![image](https://github.com/user-attachments/assets/cec97a16-c0c3-4502-a062-4edb9b901db3)
 ![octaviaannn](https://github.com/user-attachments/assets/0c8d2928-308b-4314-98a1-c2f958dca6d6)
 
-i love octavian............................................:3 
+i love octavian. sue me.
