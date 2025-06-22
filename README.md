@@ -54,6 +54,6 @@
 
 ![image](https://github.com/user-attachments/assets/cec97a16-c0c3-4502-a062-4edb9b901db3)
 ![octaviaannn](https://github.com/user-attachments/assets/0c8d2928-308b-4314-98a1-c2f958dca6d6)
+![e9513c83-520d-49e5-a991-b2e423736ad9](https://github.com/user-attachments/assets/9ae63449-e4d7-4257-962f-c1ee7b82a4d4)
 
 i love octavian & octachel. sue me.
-![e9513c83-520d-49e5-a991-b2e423736ad9](https://github.com/user-attachments/assets/9ae63449-e4d7-4257-962f-c1ee7b82a4d4)
